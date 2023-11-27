@@ -16,7 +16,7 @@ goldbright00000@gmail.com
 
 
 Ri chol ho: 155 6800 6533 , 15568008985  Lizhe716@hotmail.co.jp
-
+Kim cholbong: 133 3163 2818
 
 HR river: 13039081979  15944321829
 Ship Factory: 17643382001
